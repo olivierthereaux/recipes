@@ -1,4 +1,7 @@
+# Hot Toddy
+
 For one warming, steaming cup of hot toddy:
+
 * 125ml of water
 * 2 whole cloves
 * 2 juniper berries
@@ -15,6 +18,6 @@ For one warming, steaming cup of hot toddy:
 3. Turn it down to a gentle simmer until you can smell the spices.
 4. Heat up your drinking vessel, either by pouring some boiling water in it, or I sometimes put a bit of water and microwave it for 30 seconds. Discard the water. 
 5. Squeeze lemon juice into your cup, and pour in the shot of brandy, rum, whisky or whiskey. 
-6. Take the saucepan off the stove and pour in the liquid through a sieve into your cup. 
+6. Take the saucepan off the stove and pour the liquid through a sieve into your cup. 
 7. Stir in the honey.
 8. Drink!
