@@ -1,6 +1,9 @@
 # Hot Toddy
+by steph
 
-For one warming, steaming cup of hot toddy:
+Few things beat a hot toddy for comfort if you're trying to keep a cold at bay, or just as a winter warmer. 
+
+For one steaming cup of hot toddy:
 
 * 125ml of water
 * 2 whole cloves
@@ -13,8 +16,8 @@ For one warming, steaming cup of hot toddy:
 * 8oz brandy, rum, whisky or whiskey
 * a teaspoonful of honey
 
-1. Use a paring knife to slice off some lemon peel, and to remove the skin off the ginger. Slice the ginger thinly. 
-2. Put all the lemon peel, ginger, and spices into the water in a saucepan and bring to a boil. 
+1. Use a paring knife to slice off some lemon peel. Remove the skin off the ginger, and slice it thinly. 
+2. Put the lemon peel, ginger, and all the spices into the water in a saucepan. Bring to a boil. 
 3. Turn it down to a gentle simmer until you can smell the spices.
 4. Heat up your drinking vessel, either by pouring some boiling water in it, or I sometimes put a bit of water and microwave it for 30 seconds. Discard the water. 
 5. Squeeze lemon juice into your cup, and pour in the shot of brandy, rum, whisky or whiskey. 
