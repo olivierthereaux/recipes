@@ -1,5 +1,5 @@
 # Hot Toddy
-by steph
+_by steph_
 
 Few things beat a hot toddy for comfort if you're trying to keep a cold at bay, or just as a winter warmer. 
 
