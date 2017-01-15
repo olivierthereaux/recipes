@@ -1,9 +1,9 @@
 # Hot Toddy
 _by steph_
 
-Few things beat a hot toddy for comfort if you're trying to keep a cold at bay, or just as a winter warmer. 
+Few things beat a hot toddy if you're trying to keep a cold at bay, or for comfort as a winter warmer. 
 
-For one steaming cup of hot toddy:
+For one steaming cup of a flavourful hot toddy:
 
 * 125ml of water
 * 2 whole cloves
